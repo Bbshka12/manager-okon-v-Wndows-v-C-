@@ -1,0 +1,1 @@
+# manager-okon-v-Wndows-v-C-
